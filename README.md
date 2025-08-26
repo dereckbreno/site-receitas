@@ -5,3 +5,8 @@
 - 1 xícara de açúcar
 - 1 xícara de chocolate em pó
 - 1 xícara de leite
+- Morango
+- Banana
+- Maçã
+- Laranja
+- Mel
