@@ -5,3 +5,4 @@
 - 1 xícara de açúcar
 - 1 xícara de chocolate em pó
 - 1 xícara de leite
+-1 pitada de sal
